@@ -1,4 +1,4 @@
-# Andrey Alnso Rojas Delgado
+# Andrey Alonso Rojas Delgado
 ---------------------------------
 
 
